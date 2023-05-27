@@ -1,1 +1,0 @@
-# Amrit Silwal - Tero dai
